@@ -81,4 +81,4 @@ Once these obligations have been fulfilled, the remaining data is permanently de
 
 If you experience any issues deleting your account or profile, please contact us.
 
-📧 **Email:** support@intervision.app
+📧 **Email:** doaasafwat54@gmail.com
